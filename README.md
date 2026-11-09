@@ -40,4 +40,4 @@ Instead of breaking down, Sarah treats the courtroom as her final stage:
 * **Weaponizing Her Deceptions:** Sarah uncovers systemic corruption within the elite class that she conned. She systematically exposes how her wealthy "victims" used her fake luxury label, *Boudoir*, to launder millions in dirty money and evade taxes.
 * **The Ultimate Flip:** By shifting the narrative, she transforms herself from a malicious scammer into a whistleblowing anti-hero in the eyes of the public and the jury.
 * **The Verdict:** Her legal defense team skillfully argues that the financial elites willingly participated in her schemes out of pure greed, invalidating their status as victims. Exploiting these legal loopholes, Sarah walks out of the courthouse completely acquitted of the heaviest charges—cementing her status as the ultimate con artist who beat the system at its own game.
-#### LINK: [The Art of Sarah](https://www.netflix.com/ph-en/title/81904993?preventIntent=true&source=35&fromWatch=true)
+#### LINK: [The Art of Sarah](https://www.netflix.com/ph-en/title/81904993?preventIntent=true&source=35&fromWatch=true).
